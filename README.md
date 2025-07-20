@@ -6,4 +6,4 @@
 
 💞️ I’m looking for opportunities to work on **full-stack projects** and gain **real-time project experience**
 
-📫 How to reach me: [GitHub](https://github.com/samruddhin24) or [LinkedIn](https://www.linkedin.com/in/samruddhi-nalawade-38274a2b1)
+📫 How to reach me: [samruddhin858@gmail.com](mailto:samruddhin858@gmail.com) or [LinkedIn](https://www.linkedin.com/in/samruddhi-nalawade-38274a2b1)
